@@ -1,0 +1,2 @@
+# Sklada
+Vsichko ima vutre
